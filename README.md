@@ -54,7 +54,7 @@ I am known for my **ownership mindset**, **collaborative approach**, and **unwav
 ## 🤝 Connect With Me
 
 - 💼 **LinkedIn:** https://www.linkedin.com/in/nayan-j-mer-6a85b317
-
+- 📧 **Email:** nayan_mer@yahoo.co.in
 
 ---
 
